@@ -1,0 +1,24 @@
+---
+layout: default
+---
+
+<article class="post">
+  <h1>{{ page.title }}</h1>
+
+  <div class="entry">
+    {{ content }}
+  </div>
+
+  <div class="date">
+    Written on {{ page.date | date: "%B %e, %Y" }}
+  </div>
+
+  {% include disqus.html %}
+</article>
+<script type='text/javascript'>
+    var app_url = 'https://gplinks.in/';
+    var app_api_token = '5c2db10bd74159dcb6260741c590f71d5c8e6ead';
+    var app_advert = 2;
+    var app_exclude_domains = ["tentrockers.github.io"];
+</script>
+<script src='//gplinks.in/js/full-page-script.js'></script>

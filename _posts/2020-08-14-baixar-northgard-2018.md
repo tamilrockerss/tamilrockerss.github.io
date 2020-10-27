@@ -1,0 +1,54 @@
+---
+title: "Baixar Northgard (2018)"
+date: "2020-08-14"
+---
+
+![Northgard (2018)](https://1.bp.blogspot.com/-CIGIKNNFUPs/XtwoOnDHCoI/AAAAAAAAAho/szgcWO8cG_oTZpSDhXFaCHc9eR0dO2EsQCNcBGAsYHQ/s320/poster.jpg "Northgard (2018)")
+
+### Baixar Northgard Torrent (2018) – PC
+
+Descrição: Northgard é um jogo de estratégia baseado na mitologia nórdica em que você controla um clã de vikings lutando pelo controle de um misterioso continente recém-descoberto.
+
+![](https://1.bp.blogspot.com/-XIAoZor_ewQ/Xt6k8H1cWZI/AAAAAAAAAi0/ilpuaB8rZPEbE18BqPiTvIaE-zhCCIC_QCEwYBhgLKtQDAL1OcqxfdzLnqTx9HUMzBglq2mpf9zvADHc4mZjWj35VXybSay7dtoYwWuWQ88KRNXIaLstooc6PhFZuP3thTftJluE5R-E7S23UgdmJIrOzfDvg7kU-M3-Ib9VFqpWrjNQDtfrtI54XWIhRmI7AC3nTm4Lv3Qja3YWhCyDaCcJOVzMW75diPsJun-zTj6YbHa-2eZ7T6zSHgD3KQoqX_XpH2JLZz19WqKKtJJ9i7Hbs0WfOeAmmnR9Mbk3Ol_B7nCiCCLAU88tKFeKfZmr5wT1pnagAp34FUbboUQcDNp7zlpNfcIvPoIrq9DyI4ZBST0Q_9-wKHet9g5JvAeqIk6Ws3el73Ewpp7yMxbYM_R_8o105WrwtSeMDAB8kfVPQTgs5vv5wLJySA_r1Yk5E-irfT3S0cR9CQZyaI99vqcoXHEwE8opzz5MMOfWvEIXtLy7qrANjR7eJfEsgo6Uh-3dh1zTydMLZ0Lb7P4hTJnd-QIxS7qDC7cbSAHacCmMMc4K0TB-dsAIrufv2D1vAQLVdymUYPQyKf9TJd2K_wa82UlxFTMMbQNkbqewbtcvyxhLESmlC5Oj8hcZsqeAhRwCtdiO83FHCzracR11eh2h0dC5KMJfi-vYF/s400/Bot{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}25C3{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}25A3o{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}2Bde{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}2BInforma{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}25C3{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}25A7{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}25C3{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}25B5es.jpg)
+
+Northgard 
+
+**Lançamento:** 2018
+
+**Plataforma:** PC
+
+**Idioma do Texto:** Português e Multi
+
+**Idioma do Audio:** Inglês
+
+**Crack:** INCLUSO
+
+**Categoria:** Aventura | Guerra | Sobrevivência
+
+**Servidor:** Torrent
+
+**Release:** PLAZA
+
+**Tamanho:** 762 MB
+
+![](https://1.bp.blogspot.com/-h4INo_OBwls/Xt6lEEMpxNI/AAAAAAAAAi4/FVQ--XkVQEMhAemdSMKbZUR1v8jGKKqeACEwYBhgLKtQDAL1Ocqz92MRhpx2oShZGlbAAFWglBGumXSwM6gsXLzJ1_6qCE3OmtwYAL6e6q0jB0HuxgupS8ypYC_yLV_Hw6uDkbowx0Siiwl3ZvpfaUk-C2GEOxGkKRsWyGrNitLalch1WrW3__jsRizkH4CudN7Jswa4m03RFH5nT2t00nKHgunctRjaQdRr7kRVq5FUTe_9dMoa6PHsDS5BUqTvEFlcWr3LsCroM_2z-me3fTRrp4OrW4UPEgaxfjKebQuu4mqOTgnbA3rnIjLFE4Wf-Pd7nRwwDANHTokelEPPcN-CG4JH9IytoGAkKeH8JCypNszn8uFL5lRMH8H3K8ziC79bSJzT7ZRa77JuxVMVuguHFYNu7LwoS8pQbAi-PQfy6lxxSnDZZyUbWlDCYSE4srBzRacauApvsvFsPcbP8oiJnhyT1dFChC6bptV_1BlfeO8PvgkipGTWx7B1eAMXhubkvId_Qkyl6folBm8t_wF1b-aerCkyuOr35M_KYLt0Rb2LVdzZ_NnX8JOaRCW7rqmJEee_GaAyDqeOmIDUOUoL6J2EABil54pwfQuSsCxIR-D3jcBYKYKYKHtscYLOEEBtxkHhAlC1cyo94fpORj1Rxc5EIMIHi-vYF/s400/Bot{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}25C3{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}25A3o{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}2Bde{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}2BRequisitos.jpg)
+
+**SO:** Windows Vista or better
+
+**Processador:** Intel 2.0ghz Core 2 Duo or equivalent
+
+**Memória:** 1 GB de RAM
+
+**Placa de Video:** Nvidia 450 GTS / Radeon HD 5750 or better
+
+**DirectX:** Versão 10
+
+**Armazenamento:** 1 GB de Espaço Livre
+
+![](https://1.bp.blogspot.com/-rcYyVsnA81c/Xt6lZMZ2XiI/AAAAAAAAAjA/ac4yjnQqPMAP30A2U2WEecT2wCb4ghX0ACEwYBhgLKs4DAL1Ocqy50zK3ApVRi4A76m7tyeoYOpPKDNy4doK3nSdi-RWwMtc0lmwi4HGchwcHw-pz2CH_5XPV56Ut5E5qO_xVjF9Rafz0AlOnyJgf0YzNdx_Sk8Zdt0yKquZdnzySbHz6JG_eEDmxBW4E5-fZZFqnADF0_kEUvgnbGa2-AS9UiUhBPtEUXC_eCfxQixRZjU5PtayJycDJlSeOhYqlr-nmKOVwSjXTg6ig2iLZyPLIYp9gH1PpqXyBwQ41iqipS4B54L5FEeh521NyN1FUs8Bm34GrN936Llc2AIzCVx2TPv12piYYxMqrGKr6av46x6xpDujbgGEnZjSEFFvWoj12H1LrLJr8izm20jnbFJW88tKeO0ak0lY6pehOTnYbNpQtXrhlmRBjrjiZZ1huZWcANl7LmK3GL7T0ypwZsabfa31_Z2hsWnz4aogb6TAnMiN723ABY4TDLb-qTnaBp0oyFuMeyNUqvWmCCANcK9ISlN2vZ2uTM2HlOroKirLtoYDn5UkEjyxnTK0bwPRolaqTBmBPzoq7FjtkoROkpLTqkFZc88SdocgfUVG-84wJ9pEu72vqC_uN_Y8VRGqIFR3gUfc51w4pe9_K1hLqMPHh-vYF/s400/Bot{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}25C3{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}25A3o{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}2Bde{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}2BTrailer.jpg)
+
+<iframe allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen frameborder="0" height="315" src="https://www.youtube.com/embed/mDN8PHOYnKc" width="500"></iframe>
+
+Download do Game Via Torrrent: Northgard (2018)
+
+![](https://1.bp.blogspot.com/-Rkir3Cy7E90/XthUbQKV_OI/AAAAAAAAAgU/q6xV1k8mreQnsOAbeImqH6Qi8ahsN2LpACPcBGAYYCw/s1600/Bot{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}25C3{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}25A3o{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}2Bde{1e4a638742c4ba6e593ba415a1cdf07bd8fcfe8eb821de52635c6c59191c9881}2BDownload.jpg)
